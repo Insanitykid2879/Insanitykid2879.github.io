@@ -22,7 +22,8 @@ Viasual: Modern, sleek
 
 
 ----------------product----------------
-We want StellarCore Tech to 
+Empower your learning with the GT Project
+
 
 
 
