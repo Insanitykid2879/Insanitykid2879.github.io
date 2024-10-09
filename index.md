@@ -1,5 +1,5 @@
 
-------- THE HERO IS BACK --------
+------- Heroes Have Risen! --------
 
 
 
